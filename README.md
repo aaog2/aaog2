@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other
-- 🥅 2021 Goals: Contribute more projects
+- 🥅 2022 Goals: Contribute more projects
 - ⚡ Fun fact: I love to draw and play table tennis
 
 ### Connect with me:
